@@ -9,5 +9,6 @@ Develop SQL based analytics  to deliver detailed insights into
 **saled trend**
 This insight empowers stake holders with key business metrices, enabling strategic decision making
 
-**about me**
-I am a IT  professional eager to learn new things and looking for a position in yur company if yu can provide me with challenges,responsibility and pressure and pay ..
+**About me**
+
+I am a IT  professional eager to learn new things and looking for a position in yur company if yu can provide me with challenges,responsibility and pressure .
