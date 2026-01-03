@@ -11,4 +11,4 @@ This insight empowers stake holders with key business metrices, enabling strateg
 
 **About me**
 
-I am a IT  professional eager to learn new things and looking for a position in yur company if yu can provide me with challenges,responsibility and pressure .
+I am a IT  professional eager to learn new things and looking for better opportunities.
